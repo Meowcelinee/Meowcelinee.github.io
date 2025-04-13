@@ -1,3 +1,3 @@
-## [meowcelinee.github.io])(https://meowcelinee.github.io)
+## [meowcelinee.github.io](https://meowcelinee.github.io)
 
 yep
